@@ -1,2 +1,3 @@
-8.8K followers • 5 following
-36K followers • 6 following
+# Week 1 notes
+Sinhala Rap Cave: 8,691 followers, need 1,309 more
+Views last 28 days: 1,063,903
